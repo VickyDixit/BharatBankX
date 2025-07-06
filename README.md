@@ -99,9 +99,9 @@ Whether you're a fintech startup, a rural kiosk operator, or a large distributor
 
 Want to try BharatBankX, collaborate or license it?
 
-📧 Email: `yourname@yourdomain.com`  
+📧 Email: `vickydixit521@gmail.com`  
 🌐 Website: [https://bharatbankx.com](https://bharatbankx.com) *(Coming Soon)*  
-📞 Phone/WhatsApp: `+91-XXXXXXXXXX`
+📞 Phone/WhatsApp: `+91-9712729575`
 
 ---
 
